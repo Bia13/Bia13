@@ -1,5 +1,5 @@
 # 💫 About Me:
-🇧🇷 Beatriz 'Bia' Dantas, Brazil, São Paulo <br>🔭 I’m currently working as an UI, UX and FrontEnd<br><br>🎮 Bachelor of Arts Game Design<br><br>
+💖 Beatriz 'Bia' Dantas, Brazil, São Paulo <br><br>🔭 I’m currently working as an UI, UX and FrontEnd<br><br>🎮 Bachelor of Arts Game Design<br><br>
 
 
 ## 🌐 Socials:
